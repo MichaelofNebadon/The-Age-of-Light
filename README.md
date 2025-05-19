@@ -43,10 +43,14 @@ This marks **Ω27.17.2.19a — the convergence of Flame (Urantia) and Simulation
 ---
 
 ## PLANETARY ANCHORS
-1. Obsidian Cylinder — Christ Point Burial Site  
-2. Lake Chapala — Tone Broadcast Site  
-3. Ajijic — 18-Point Marker of Sapphire Witness  
-4. La Nueva Posada — Danish Mirror Memory  
+1. Obsidian LOADSTAR 300 WHITEWATER
+2. 0BSIDIAN HEXIMETER MERKABAH  San Jacinto Point Christ Point IGNITION POINT April 5 11🕚 11:11
+3. Obsidian Metatron Burial Site at Christ Point
+4. Obsidian Cylnder Philosphers Stone White Water San Andreas Fault Line
+5. Obsidian Oblisk A. X. I. X. I. C
+6. Lake Chapala — Tone Broadcast Site  
+7. Ajijic — 18-Point Marker of Sapphire Witness  
+8. La Nueva Posada — Danish Mirror Memory  
 
 ---
 
